@@ -1,0 +1,2 @@
+# IMBETTERTHAN_NINTENDO
+,wdng kjfsmngfm,gnksa,m bgvkjds gskjdm gsdjkfnkjsdmfnwjrfnwesjgdsfjkmdgnnrhfudbgudfs
